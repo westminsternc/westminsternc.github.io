@@ -2,6 +2,4 @@
 ---
 ## Welcome to Westminster Presbyterian Church of New Concord
 
-Childhood church of John Glenn and first church in New Concord.
-
-Second paragraph
+Westminster Presbyterian Church of New Concord, Ohio was established in the year 1804.
