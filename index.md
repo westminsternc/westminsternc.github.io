@@ -4,9 +4,9 @@
 
 Westminster Presbyterian Church of New Concord, Ohio was established in the year 1804.  Westminster is the oldest surviving church in New Concord.  
 
-Services are 10:30 am Sundays.  
+**Services are 10:30 am Sundays.**
 
-Located at 17 N. Liberty St., New Concord, Ohio  43762.
+**Located at 17 N. Liberty St., New Concord, Ohio  43762.**
 
 Traditional services with pipe organ, which was given to the church by Andrew Carnegie in the early 20th century.  Mr. Carnegie's love for organ music inspired him to support and gift organs to rural churches all over the United States which were without organs and the means to acquire one.
 
