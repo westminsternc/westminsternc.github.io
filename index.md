@@ -14,7 +14,7 @@ John Glenn's parents, John Herschel, Sr. and Clara Sproat Glenn, joined Westmins
 
 Westminster is the only church in the village with an original iron bell which is chimed every Sunday to call villagers to worship.
 
-We'd love to have you join us.  You can also find us on Facebook.
+**We'd love to have you join us.  You can also find us on Facebook.**
 
 The village of New Concord, small and friendly, is home to several churches that support one another and come together for many joint community events, such as an all village vacation bible school, christmas pageant, vespers service, Easter breakfast service and more. 
 
